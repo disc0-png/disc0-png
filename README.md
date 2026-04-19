@@ -1,4 +1,4 @@
-![Image Alt](https://i.pinimg.com/736x/87/12/ee/8712ee988ab4d548e4af991ce5e07e64.jpg)
+![Image Alt](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3bWpjYzJ2ZHozdXF3bmEwMXAxYWhyd2wyczdoeDNwbnl1Z2RodzFzaSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/oR006nlHDleLvDZ5gs/giphy.gif)
 # 𝐇𝐞𝐲 𝐰𝐬𝐩
 . I'm Disco/Gato .
 He/It ONLY! (cmon guyssss)
