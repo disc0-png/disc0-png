@@ -1,3 +1,4 @@
+
 ![Image Alt](https://github.com/disc0-png/disc0-png/blob/main/9%20sin%20t%C3%ADtulo_20260421144310.png?raw=true)
 # 𝐇𝐞𝐲 𝐰𝐬𝐩
 . I'm Disco/Gato . He/It ONLY! (cmon guyssss)
